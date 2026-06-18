@@ -1,9 +1,9 @@
 <div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-06-18_031834927.png" /></div>
 ㅤ
 <p align="center">
-idc cuz ive ran through hell </br>
-i been sick and yall still cant tell </br>
- <a href= "https://open.spotify.com/track/2QUioPiN8dDjPtLdT8RVB0?si=063e26ec11bb4523"> fuck that shit</a> i pay out myself
+i been <a href= "https://open.spotify.com/track/2QUioPiN8dDjPtLdT8RVB0?si=56e79576df3646a6">sick</a> and yall still cant tell </br>
+ㅤ</br>
+iwc im not a good person lol, if you know who i am no u dont
 </p>
 ⠀
 <p align="center">
