@@ -7,5 +7,5 @@ iwc im not a good person lolㅤㅤcall me cam or boffy idrc
 </p>
 ⠀
 <p align="center">
- <a href= "https://set.atabook.org">ata</a>ㅤㅤ  ㅤㅤ<a href= "https://www.youtube.com/@Boffy">BOFFY</a> 
+ <a href= "https://set.atabook.org">ata</a>ㅤㅤ  ㅤㅤ<a href= "https://rentry.co/boffy">rentry</a> 
 </p>
